@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Arnolily
 - 👀 I’m interested in artificial intelligence
 - 🌱 I’m currently learning Deep Neural Networks
-- 💞️ I am in love with Lily @sorceressyidi
+- 💞️ I am in a romantic relationship with Lily @sorceressyidi
 - 📫 How to reach me timejy@outlook.com or 2022190907033@std.uestc.edu.cn
 - I currently study in UESTC
 
